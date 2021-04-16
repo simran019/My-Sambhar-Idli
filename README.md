@@ -1,1 +1,1 @@
-# My-Sambhar-Idli
+it will tel u how idli sambhar is made
